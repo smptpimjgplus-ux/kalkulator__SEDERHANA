@@ -1,0 +1,1 @@
+# kalkulator__SEDERHANA
